@@ -7,3 +7,5 @@ Check out my official Cambridge FCE certificate to see my English proficiency at
 
 You can verify my Cambridge English certifications through the official Cambridge verification portal.  
 [Verify Cambridge Certifications](https://www.cambridgeenglish.org/why-choose-us/higher-education-institutions/how-to-verify-results-online/)
+
+![My Cambridge FCE English Certification](./cambridge-certification-staifmatej.jpeg)
